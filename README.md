@@ -1,4 +1,4 @@
-⚜Analista e desenvolvedor JR.⚜
+⚜Analista de Infra e Dev JR.⚜
 ⚜Formado pelo colégio Cotemig em 2019.⚜
 ⚜Cursando Sistemas de Informação na Pontifíca Universidade Católica de Minas Gerais.⚜
 ⚡Muito interessado pela área de Tecnologia da Informação.⚡
